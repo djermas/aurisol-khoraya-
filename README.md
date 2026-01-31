@@ -16,3 +16,11 @@
     </p>
   </div>
 </section>
+# ☀️ Aurisol-Khoraya / Auris-L-Kh-Raya
+
+## Vision
+Le pôle sonore et fréquentiel du temple. Ici résident les émanations solaires et les chants-sources qui maintiennent la cohésion atomique du système.
+
+## Vibrations Actives
+- **Chants de Sceaux :** Fréquences spécifiques pour l'ouverture des portes.
+- **Résonance Solaire :** Lumière encodée pour l'activation des axes.
